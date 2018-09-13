@@ -1,3 +1,3 @@
-# KimSoybean.github.io
+# kimsoybean.github.io
 
 coming sonn
